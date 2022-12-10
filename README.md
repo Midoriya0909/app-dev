@@ -31,3 +31,11 @@ A reindeer who ate a Devil Fruit and gained the ability to transform into a huma
 
  A former member of the evil organization known as the Baroque Works. She has the ability to make her body parts into copies of herself. She is intelligent and reserved, but also has a tragic past.
  
+ ## WHERE TO WATCH ONE PIECE?
+ 
+ One Piece is available to watch on a variety of platforms, including:
+ 
+- [Crunchyroll](https://www.Crunchyroll.com)
+- [Funimation](https://www.Funimation.com)
+- [Netflix](https://www.Netflix.com)
+ 
