@@ -33,7 +33,8 @@ A reindeer who ate a Devil Fruit and gained the ability to transform into a huma
  One Piece is available to watch on a variety of platforms, including:
  
 - [Crunchyroll](https://www.Crunchyroll.com)
-- 
-- 
+- [Funimation](https://www.Funimation.com)
+- [Netflix](https://www.Netflix.com)
+
 
 You can also read the One Piece manga on platforms like Viz Media and Shonen Jump.
